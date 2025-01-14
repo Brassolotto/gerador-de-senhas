@@ -99,4 +99,4 @@ Seu Nome
 - LinkedIn: [@seu-linkedin](https://linkedin.com/in/ricardo-brassolotto)
 
 ---
-⌨️ com ❤️ por [Seu Nome] 😊
+⌨️ com ❤️ por Rick Brassolotto 😊
